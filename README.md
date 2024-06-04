@@ -12,4 +12,4 @@ flaviompaleari@hotmail.com
 
 @0_Miguel0
 
-![](https://tenor.com/pt-BR/view/peace-out-peace-sign-peace-ice-age-eddie-gif-16750982996130936929)
+![](<div class="tenor-gif-embed" data-postid="16750982996130936929" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/peace-out-peace-sign-peace-ice-age-eddie-gif-16750982996130936929">Peace Out Peace Sign GIF</a>from <a href="https://tenor.com/search/peace+out-gifs">Peace Out GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
