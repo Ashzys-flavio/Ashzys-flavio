@@ -12,4 +12,4 @@ flaviompaleari@hotmail.com
 
 @0_Miguel0
 
-![]()(https://media1.tenor.com/m/Va9M6DvKygYAAAAC/ba-dum-tsss-drum.gif)
+![](https://tenor.com/pt-BR/view/peace-out-peace-sign-peace-ice-age-eddie-gif-16750982996130936929)
